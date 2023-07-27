@@ -1,7 +1,7 @@
 # FartniteHook-1.2
 I Love 3000IQPlay 🤑🤑
-Dev: # Elijah
+Dev: # Elijah (Pls Dont Hate me 😭)
 Jar : anonymous
 Crack : my honey 💀
-![LN8JXBQ](https://github.com/MikuSoCute/FartniteHook-1.2/assets/122946121/2aeddf89-603e-4741-bdbe-37ff7e8f845e)
-![IMG_0235](https://github.com/MikuSoCute/FartniteHook-1.2/assets/122946121/9387c609-a75e-40b7-8b2c-0d524dd89969)
+![image](https://github.com/MikuSoCute/FartniteHook-1.2/assets/122946121/b30f7510-ab84-4871-bff7-94b5b3d2fc3c)
+
